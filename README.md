@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me:
 
-- Discord : Kawiya#1647
-- Jabber : kawiya@xmpp.jp
+- - Discord : Kawiya#1647
+- - Jabber : kawiya@xmpp.jp
 
 
 
